@@ -9,4 +9,4 @@ Ich liebe dich nicht!
 - dich
 
 
-Ich mag die Sonne!
+Ich mag die Sonne, die Palmen!
