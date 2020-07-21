@@ -7,3 +7,6 @@ Ich liebe dich nicht!
 - ich
 - liebe
 - dich
+
+
+Ich mag die Sonne!
